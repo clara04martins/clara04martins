@@ -11,4 +11,4 @@ Estou desenvolvendo estudos de tecnologia
 
 wanuza.martins.silva@gmail.com
 
-![](https://media1.tenor.com/m/XKI89oaUATwAAAAC/love-hearts.gif
+![](https://media1.tenor.com/m/XKI89oaUATwAAAAC/love-hearts.gif)
